@@ -1,4 +1,4 @@
-# 
+# Premium Vegas Pro for PC scripts is the best Vegas Pro for PC scripts with plugin-support and rotoscoping. Safe, reliable, and optimized for maximum performance.
 
 
 
